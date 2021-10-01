@@ -2,9 +2,9 @@ GARENA FREE FIRE DIAMOND]] HACK APP - GARENA FREE FIRE]] HACK DIAMOND{he4r5dty}
 ~~~~~~~~~~~~
 UPDATED: 30-09-2021|{ONLINEUSERS:4128}
 
-`CLICK HERE TO USE Hack. <https://kenhacks.com/garena>`__
+`CLICK HERE TO USE Hack. <https://getmyfile.co/3284fbb>`__
 
-`CLICK HERE TO USE Hack. <https://kenhacks.com/garena>`__
+`CLICK HERE TO USE Hack. <https://getmyfile.co/3284fbb>`__
 
 5 minutes ago - Free Fire Generator 2021 - Free Unlimited Diamonds and Coins 
 
